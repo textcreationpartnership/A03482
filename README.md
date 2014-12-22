@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-¶ THE fall and euill successe of Rebellion from time to time Wherein is contained matter, moste meet
+
 1. To the Reader.
 
 #####Body#####
